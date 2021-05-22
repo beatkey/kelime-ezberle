@@ -1,2 +1,0 @@
-"# kelime-ezberle" 
-"# kelime-ezberle" 
